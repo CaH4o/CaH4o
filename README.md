@@ -1,5 +1,4 @@
 ### Hello everyone!
-#### 🎓 I’m currently a BoF program student at Integrify IT Academy.
 ___
 
 #### 5 fun facts about me (1 of them is not true)
